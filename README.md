@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name]! 👋
+# Hi, I'm [Jaylin]! 👋
 
 🎒 **High School Student**  
 💻 **Aspiring:** Web Developer | Data Scientist | Software Engineer  
